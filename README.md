@@ -1,3 +1,3 @@
 # Felipe Oliveira
 
-Hi, i'am Felipe (really?!). A develop 
+Hi, i'am a develop 😆
