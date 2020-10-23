@@ -1,3 +1,3 @@
 # Felipe Oliveira
 
-Hi, i'am a develop 😆
+Hi, i'am a developer 😆
